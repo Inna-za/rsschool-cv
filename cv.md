@@ -53,8 +53,7 @@ LLC "NDA" (Jun 2020 - Mar 2021)
 ### ADDITIONAL EDUCATION
 
 HR School by Katerina Ostapchuk  
-"Як ІТ-компаніям почати наймати
-спеціалістів у Польщі?" by
+Courses by
 Evotalents
 
 ### EDUCATION
