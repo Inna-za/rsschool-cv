@@ -61,7 +61,7 @@ Evotalents
 
 2020 - 2021
 Master degree in International
-business
+business  
 2016 - 2020
 Bachelor degree in International
 business
